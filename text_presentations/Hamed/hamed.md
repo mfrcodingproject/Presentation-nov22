@@ -1,1 +1,1 @@
-A new lesson for us
+new change we made together
